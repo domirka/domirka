@@ -1,1 +1,1 @@
-- domirka. dev. f.
+- domirka. f.
